@@ -1,5 +1,7 @@
 # Awesome Trading Bot
 
+![How to Earn Online](https://www.hostinger.com.ua/rukovodstva/wp-content/uploads/sites/8/2018/09/kak-zarabotat-online.png)
+
 ## Описание
 
 Добро пожаловать в мир легких денег с нашим невероятным торговым ботом для фьючерсов на Binance! 🚀
